@@ -1,0 +1,12 @@
+-leticia mariane
+-15y
+-estudo na 1 serie do ensino medio
+-não sei o que quero pro meu futuro
+-estou aprendendo pensamento computacional
+-progamando js
+-pretendo fazer facudade de administração
+-temho uma exelente amiga 
+-eu amo comer
+-eu tenhoo 1,66 de altura
+-eu peso 56kg
+-meu ista é reserva_letici4
